@@ -1,6 +1,6 @@
 # An Nachmieter/in
 
-Nach dem Besuch, bitte überlegen Sie ob die Wohnung Ihnen gefällt, wenn ja, bitte sagen Sie mir Bescheid per E-mail an: **[me@bigsolom.dev](mailto:me@bigsolom.dev) spätestens morgen (01.04.2021 bis 10:00 Uhr)**.
+Nach dem Besuch, bitte überlegen ob Sie die Wohnung nehmen möchten, wenn ja, bitte geben Sie Bescheid per E-mail an: **me@bigsolom.dev spätestens morgen (08.04.2021 bis 10:00 Uhr)**.
 
 Bitte berücksichtigen Sie die folgende Punkte als einer/e zükunftiger/e Nachmieter/in:
 - Mietvertrag beginnt am 15.04 oder spät. 01.05.2021.
